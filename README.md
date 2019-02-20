@@ -1,1 +1,1 @@
-# computer-science-engineering-art
+# Computer Science and Engineering - Artworks
